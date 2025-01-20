@@ -6,11 +6,9 @@
 
 ## İletişim
 **1- ALİ ŞEYHO 132130115**
+
 **2- ABDULRAHMAN KHALID MUZAHEM AL NAQEEB 132030093**
 
-- **Instagram:** [@aliseyho_](https://www.instagram.com/aliseyho_?igsh=aGx0bXZkMjE4aGh5)
-- **E-posta:** ali2003seyho@gmail.com
-- **Telefon:** +90 53 426 57 001
 
 ---
 
