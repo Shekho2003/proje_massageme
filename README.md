@@ -1,6 +1,6 @@
 # SMS Mesajlaşma Mobil Uygulaması
 
-**Video:**
+**Video: https://youtu.be/W4Qx3nyuJ54?si=C6oBdA1I70aEPspp** 
 
 ---
 
